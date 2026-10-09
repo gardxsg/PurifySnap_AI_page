@@ -27,4 +27,4 @@ We may update our Privacy Policy from time to time. Any changes will be posted o
 
 ### 6. Contact Us
 If you have any questions or suggestions regarding our Privacy Policy, feel free to contact us at:
-**Email:** support@purifysnap.com
+**Email:** gardxsg@gmail.com
